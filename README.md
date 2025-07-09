@@ -34,4 +34,4 @@
 通过以上平台，你可以轻松免费观看高清日本AV影片，享受流畅、安全、无广告的观看体验。不论是经典影片，还是追逐最新内容，这些平台都能满足你的需求，带来最佳的观看体验。
 
 
-<span style="display:none;">[Canonical link](  ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/new20250709/609811 ）</span>
